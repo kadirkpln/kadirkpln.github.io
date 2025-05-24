@@ -1,1 +1,0 @@
-# kadirkpln.github.io
